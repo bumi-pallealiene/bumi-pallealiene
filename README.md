@@ -1,4 +1,4 @@
-ABOUTME
+
 Bumi, 19, artist and cosplayer
 
 AB PONYTOWN: feel free to interact n sit w me !! i might be afk most of the time (whisper if away status, i will answer asap)(if busy i prefer left alone w best friend/partner)
