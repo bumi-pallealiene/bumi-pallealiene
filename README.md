@@ -7,8 +7,7 @@ AB PONYTOWN: feel free to interact n sit w me !! i might be afk most of the time
 away status, i will answer asap)(if busy![image](https://github.com/user-attachments/assets/ba0c7a3f-289a-48dc-af4e-f498861adb13)
  i prefer left alone w best friend/partner)
 
-->![image](https://github.com/user-attachments/assets/8a6ef839-b0a5-462f-9ca8-203eab611c91)
- i have my pony pfp commissions open on fiverr if ur interested! art on tw: bumizx
+->![image](https://github.com/user-attachments/assets/ba4d8cbd-1a55-4023-bc25-3389a1ecde37) i have my pony pfp commissions open on fiverr if ur interested! art on tw: bumizx
 
 Interests: astronomy, Splatoon, IdentityV, Cookie run Kingdom, JJba, zelda (totk), kof, stardew valley, brawl stars, flcl, csm, evangelion n yk, more..
 
