@@ -13,7 +13,8 @@ note: i have my contrast and saturation up in game, skin colors might look diffe
 
 
 
-![image](https://github.com/user-attachments/assets/e7562fed-bb98-453d-bd9e-3765baed85a4) ![image](https://github.com/user-attachments/assets/7ae3eb24-3ca0-4363-ad3b-9eaa09c5ef84) ![image](https://github.com/user-attachments/assets/dc359d59-4923-4e6d-b4ce-e648641925d8) ![image](https://github.com/user-attachments/assets/7bda8bc4-3f05-4902-83f9-a8891ce8b3a1) ![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/e7562fed-bb98-453d-bd9e-3765baed85a4) ![image](https://github.com/user-attachments/assets/7ae3eb24-3ca0-4363-ad3b-9eaa09c5ef84) ![image](https://github.com/user-attachments/assets/dc359d59-4923-4e6d-b4ce-e648641925d8) ![image](https://github.com/user-attachments/assets/7bda8bc4-3f05-4902-83f9-a8891ce8b3a1) ![image](https://github.com/user-attachments/assets/043d1804-9840-46c7-827c-c8a80a4b9ea8)
+
 
 
 
