@@ -12,7 +12,8 @@ Interests: astronomy, Splatoon, IdentityV, Cookie run Kingdom, JJba, zelda (totk
 note: i have my contrast and saturation up in game, skin colors might look different
 
 
-![image](https://github.com/user-attachments/assets/1656367d-8d22-46cf-866c-2ec7036bac4e) ![image](https://github.com/user-attachments/assets/a99be20b-5400-43e9-89a2-b1b369716aa1) ![image](https://github.com/user-attachments/assets/a48adabc-7768-4d07-aebb-37df5f7716e8) ![image](https://github.com/user-attachments/assets/88e01e18-a43d-4a96-ab97-bc1246040214) ![image](https://github.com/user-attachments/assets/4aa46fd0-b746-46a0-a2e9-c740614d7ca0)
+![image](https://github.com/user-attachments/assets/1656367d-8d22-46cf-866c-2ec7036bac4e) ![image](https://github.com/user-attachments/assets/a99be20b-5400-43e9-89a2-b1b369716aa1) ![image](https://github.com/user-attachments/assets/a48adabc-7768-4d07-aebb-37df5f7716e8) ![image](https://github.com/user-attachments/assets/88e01e18-a43d-4a96-ab97-bc1246040214) ![image](https://github.com/user-attachments/assets/4aa46fd0-b746-46a0-a2e9-c740614d7ca0) ![image](https://github.com/user-attachments/assets/1d5a0719-1e42-46f6-8a00-ab6c49104cc8) ![image](https://github.com/user-attachments/assets/1656367d-8d22-46cf-866c-2ec7036bac4e) ![image](https://github.com/user-attachments/assets/a99be20b-5400-43e9-89a2-b1b369716aa1) ![image](https://github.com/user-attachments/assets/a48adabc-7768-4d07-aebb-37df5f7716e8) ![image](https://github.com/user-attachments/assets/88e01e18-a43d-4a96-ab97-bc1246040214) ![image](https://github.com/user-attachments/assets/4aa46fd0-b746-46a0-a2e9-c740614d7ca0) ![image](https://github.com/user-attachments/assets/1d5a0719-1e42-46f6-8a00-ab6c49104cc8)
+
 
 
 
