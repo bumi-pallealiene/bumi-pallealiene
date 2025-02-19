@@ -5,7 +5,8 @@ Bumi![image](https://github.com/user-attachments/assets/35608b74-9b41-4d43-ae49-
 
 AB PONYTOWN: feel free to interact n sit w me !! i might be afk most of the time (whisper if ![image](https://github.com/user-attachments/assets/f3a7733f-051a-4768-a1ac-dcfe1e503c0d)
 away status, i will answer asap)(if busy![image](https://github.com/user-attachments/assets/ba0c7a3f-289a-48dc-af4e-f498861adb13)
- i prefer left alone w friend/partner) 
+ i prefer left alone w friend/partner)           
+ 
 +for idv i only ship lucadrew n adamil, but i like to match characters or skins if asked :3 
 
 
