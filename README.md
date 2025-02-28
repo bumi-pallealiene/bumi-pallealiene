@@ -8,7 +8,7 @@ away status, i will answer asap)(if busy![image](https://github.com/user-attachm
  i prefer left alone w friend/partner)         
  DNI: minors
  
-+for idv i only ship lucadrew n adamil, but i like to match characters or skins if asked :3 
++i rarely ship, but i like to match characters or skins if asked :3 
 
 
 ->![image](https://github.com/user-attachments/assets/ba4d8cbd-1a55-4023-bc25-3389a1ecde37) commissions open soon ! art on tw: bumizx
