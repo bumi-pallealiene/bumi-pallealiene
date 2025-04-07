@@ -1,5 +1,5 @@
 
-Bumi![image](https://github.com/user-attachments/assets/35608b74-9b41-4d43-ae49-bf248dc0d8ed), 19, artist and cosplayer 
+Bumi![image](https://github.com/user-attachments/assets/35608b74-9b41-4d43-ae49-bf248dc0d8ed), 19, artist and cosplayer, TIKTOK: @.bumi
 
 
 
